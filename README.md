@@ -1,3 +1,3 @@
 # MY Homepage
-## personal informotion
+## personal infomation
 ## homework
